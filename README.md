@@ -6,4 +6,4 @@ The song is a happy song of the rainbow.
 
 Rainbow Rainbow Rainbow.
 
-Lalalalala
+Lalalalalalalala.
